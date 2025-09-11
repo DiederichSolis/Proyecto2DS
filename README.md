@@ -9,7 +9,7 @@ Universidad del Valle de Guatemala – Semestre II, 2025
 - Diederich Solis – 22952  
 - Juan Cordón  
 - Sebas Juarez  
-- Sara Guzmán  
+- Sara Guzmán - 22097
 
 ---
 
